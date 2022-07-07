@@ -1,1 +1,1 @@
-# 1729-AI-Conference-Fractal-AnalyicsVidhya_Event-
+# 1729-AI-Conference-Fractal-AnalyticsVidhya_Event
